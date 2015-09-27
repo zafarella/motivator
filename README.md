@@ -1,0 +1,2 @@
+# motivator
+Daily wise advices
